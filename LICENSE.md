@@ -1,4 +1,4 @@
-#  
+#  professional jump to steal lucky blocks Script offers the most advanced jump to steal lucky blocks Script, with one-hit kill and no clip. Perfect for
 
 
 
